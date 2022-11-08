@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @StefanKeba (Stefan Weilhartner)
-- This is my account at work (Keba, Linz, Austria)
+- This is my account that i use at work (Keba, Linz, Austria)
 - 
 - 👀 I’m interested in retro gaming, retro consoles, retro computers, digital audio, high end audio, beer, wine...
 - 
